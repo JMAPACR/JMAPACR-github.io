@@ -1,1 +1,1 @@
-# JMAPACR-github.io
+# JMAPACR.github.io
